@@ -1,7 +1,7 @@
 ## test
 This is a test.
 ---
-[yo mama](https://pornhub.com)
+[yo mama](https://0x00sec.org/)
 
 - hello
 - hello
